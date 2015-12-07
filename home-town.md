@@ -2,4 +2,4 @@
 
 Calgary, Alberta, Canada
 
-Gateway to the Rocky mountains
+Gateway to the Rocky mountains where there is awesome skiing.
